@@ -2,7 +2,7 @@
   <img width="300" height="300" src="https://files.catbox.moe/1rj6qg.PNG">
 </p>
 <p align="center">
-$\text{skate /}$ <br> $\text{18}$ <br> $\text{basil / sherbet}$
+$\text{skate / basil / sherbet}$
 </p>
 <p align="center">
   <img width="1000" height="5" src="https://files.catbox.moe/dx4sen.jpg">
