@@ -1,14 +1,14 @@
 <p align="center">
-  <img width="300" height="300" src="https://files.catbox.moe/3519qw.png">
+  <img width="300" height="300" src="https://files.catbox.moe/v5jqr8.png">
 </p>
 <p align="center">
-$\text{skate / soul}$
+$\text{skate !!!!}$
 </p>
 <p align="center">
-  <img width="1000" height="5" src="https://64.media.tumblr.com/b0b250ec8a7b8843d157dddce02bdf88/e1aed535dca23fc5-c3/s400x600/8bbcd5d5a8e5be3b977c068d578a7417bedd1475.pnj">
+  <img width="1000" height="50" src="https://files.catbox.moe/9uogxp.png">
 </p>
 <p align="center">
-$\text{they / ask}$ <br> $\text{19}$ <br> $\text{read links for more}$
+$\text{they / ask}$ <br> $\text{19}$ <br> $\text{I WANNA REMAKE THIS THING I JUST HATE GITHUB CODING}$
 </p>
 <p align="center">
   <img width="140" height="120" src="https://files.catbox.moe/3h720s.webp">
