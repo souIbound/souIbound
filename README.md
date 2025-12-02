@@ -8,7 +8,7 @@
 <h6 align="center">'sorry , but im not really into guys with lame ass earrings .'
 </p>
 <p align="center">
-  <img width="400" height="400" src="https://files.catbox.moe/khfms6.png">
+  <img width="400" height="400" src="https://files.catbox.moe/vlcfqz.png">
   <h5 align="center"> they / any ; 19
       <h5 align="center"> read my links !!!
   <p align="center">
