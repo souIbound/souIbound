@@ -9,7 +9,7 @@
 </p>
 <p align="center">
   <img width="400" height="400" src="https://files.catbox.moe/vlcfqz.png">
-  <h5 align="center"> they / any ; 19
+  <h5 align="center"> he / him ; 19
       <h5 align="center"> read my links !!!
   <p align="center">
   <img width="700" height="200" src="https://64.media.tumblr.com/10673d17ffff238333647f701450e5d5/2677c21dcd6bbdb2-ee/s400x600/e8a09777f8dd59126cffd1c4c8aa26e7d370e4ff.pnj">
